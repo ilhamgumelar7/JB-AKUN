@@ -1,2 +1,0 @@
-# JB-AKUN
-JB AKUN
